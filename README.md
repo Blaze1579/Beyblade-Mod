@@ -1,1 +1,1 @@
-# Cool Tops Mod
+# CoolTops
